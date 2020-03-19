@@ -6,6 +6,6 @@ fucking blueberries
 
 ## Contributors
 
-* Alex Cheng
+* Alex (aiya) Cheng
 * Kevin (i love minnesota so much hahaha minnesota is superior to all) Huang
 * Ethan (pee pee) Lee
